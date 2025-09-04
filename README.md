@@ -1,5 +1,4 @@
-Ingredientes:
-
+BOLO DE MORANGO
 3 ovos
 
 1 xícara de açúcar
